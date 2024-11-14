@@ -6,4 +6,5 @@ $${\color{lightblue}❝ \space 𝘐 \space 𝘴𝘶𝘱𝘱𝘰𝘴𝘦 \space �
 $${\color{lightblue}𝘐 \space 𝘸𝘢𝘴 \space 𝘵𝘦𝘭𝘭𝘪𝘯𝘨 \space 𝘵𝘩𝘦 \space 𝘵𝘳𝘶𝘵𝘩 \space 𝘸𝘩𝘦𝘯 \space 𝘐 \space 𝘴𝘢𝘪𝘥 \space 𝘐 \space 𝘦𝘯𝘫𝘰𝘺𝘦𝘥 \space 𝘦𝘯𝘫𝘰𝘺𝘦𝘥 \space 𝘸𝘰𝘳𝘬𝘪𝘯𝘨 \space 𝘸𝘪𝘵𝘩 \space 𝘺𝘰𝘶. \space ❞}$$
 </p>
 
-![Untitled435_20241114033206](https://github.com/user-attachments/assets/c4b477d7-1b65-4c26-9437-942b32fe7fd4)
+![Untitled435_20241114033206](https://github.com/user-attachments/assets/65ac4435-e05a-484e-b4ab-58bf11e627cc)
+
