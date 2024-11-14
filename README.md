@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=connerzpalace&color=red)
 <p align="center">
 $${\color{lightblue}❝ \space 𝘐 \space 𝘴𝘶𝘱𝘱𝘰𝘴𝘦 \space 𝘐 \space 𝘩𝘢𝘥 \space 𝘵𝘩𝘪𝘴 \space 𝘤𝘰𝘮𝘪𝘯𝘨 \space 𝘧𝘰𝘳 \space 𝘮𝘦 \space 𝘥𝘪𝘥𝘯'𝘵 \space 𝘐? \space 𝘍𝘰𝘳 \space 𝘸𝘩𝘢𝘵 \space 𝘪𝘵'𝘴 \space 𝘸𝘰𝘳𝘵𝘩}$$
 </p>
